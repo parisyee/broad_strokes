@@ -112,6 +112,16 @@ They are all ashamed of her and the couple is now completely discouraged. No one
 
 But even though they decide to go through with it, there is still a massive hurdle. Maybe there is an ameatue adult film movie contest and she convinces them that they should enter.
 
+She goes to church with her husband and her parents. He is singing loud. Her parents are singing loud. She is singing quietly and is distracted, looking at something else. This is the meeting hall.
+
+After church they have lunch. Her parents are so proud of him. Wesley. He is the son they never had. He tells everyone about how great things are going at work and they praise him. They ask her how work is going for her. She says that it's the same and doesn't elaborate.
+
+She commutes to the city for work.
+
+She works in a big office with a lot of loud, confident types.
+
+She has
+
 # Other Characters
 
 ### Walter
@@ -124,5 +134,4 @@ Let's just remember that they are there but we might not need them yet. They're 
 
 ### Anton and Shauna
 
-Since these two people are elements of Lucille's work environment, we have to decide what that environment really is before we can undertsnd what roles they play in that envrionemnt.
-
+Since these two people are elements of Lucille's work environment, we have to decide what that environment really is before we can undertsnd what roles they play in that environment.
