@@ -64,12 +64,10 @@ Timmothy and Esther were not very nice to Lucille, nor are they now. Their mini 
 
 ​	Immediately upon meeting him and learning of his story, Timmothy and Esther Wong had become fascinated with Walter. His success, his devotion, his confidence, it was everything they wanted their Lucille to be. The Wong's would have traded their daughter for Walter if they could. But realizing that was impractical they did the next best thing and poured every ounce of their energy into arranging their union. No small feet considering their shy and plain looking daughter had a miraculous ability for going completely unnoticed by most people. Still though, after seeding and perpetuating many rumors of romantic interest and attraction throughout the various cliques of the congregation, Lucille and Walter quickly found themselves in awkward conversation. Conversation turned to dating and dating turned to marriage.
 
-​	Walter and Lucille never really cared much for each other. In the beginning, they didn't mind each other so much. But they certainly did not share the sort of uncontrollable attraction that you might expect to find in the early days of most romantic relationships. For Walter, marriage was just one more necessary step towards matching his reality with his perception of what a successful investment banker and devout God-man looked like. And for Lucille, their union was mainly just a means of appeasing her parents, a desperate attempt to quell their incessant nagging.
+​	Walter and Lucille never really cared much for each other. In the beginning, they didn't mind each other so much. But they certainly did not share the sort of uncontrollable attraction that you might expect to find in the early days of most romantic relationships. For Walter, marriage was just another necessary step towards matching his reality with his perception of what a successful investment banker and devout God-man looked like. And for Lucille, their union was mainly just a means of appeasing her parents, a desperate attempt to quell their incessant nagging.
 
-​	It shouldn't come as a surprise then that the couple's marriage is hollow, their intimate love life nonexistent, and their cohabitation a social formality. 
+​	It shouldn't come as a surprise then that the couple's marriage is hollow, their intimate love life nonexistent, and their cohabitation a social formality. And it's remained that way, virtually unchanged until now.
 
-##### 2323
+The shower faucet squeaks as Walter turns off the water. He enters the bedroom in a robe drying his hair to find Lucille still kneeling at the bed wearing the same blank stare as when he left.
 
-------
-
-She's driving home and begins to sob. She is overcome with depression. She turns her wheel and slams into a telephone pole.
+​	"You better get get ready. You're going to be late." Water said, not talking to her, but talking at her. And without even checking to see if his message landed, he vanished into the walk-in closet.
