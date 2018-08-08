@@ -23,3 +23,14 @@ I think the first sequence should be on a Sunday. We come in on them at church a
 So the next day she is at work. And its time for her meeting. But they tell her that she's going to be doing a different job. A more boring one. And while she's driving home from work her mom calls and asks her about the job. She tells her she didn't get it and then her mom starts yelling at her - I told you x, y, z. She hangs up the phone, then starts to have a panic attack, and drives her car into wall.
 
 Then the next scene is of her in the therapist office.
+
+# okay...
+
+She's a deprived sex addict. She's at the biggest conflict. In the meeting she thinks about sex. She hides the porn that she watches.
+
+So what's the outline of this chapter? We come in with a description of the meeting hall and the people. And while she's there she gets lost in a daydream about two other people having sex. That is what makes her such a unique character; she doesn't fantasize about herself having sex. She doesn't even get aroused. That's not what the story is about. What makes her the perfect person to direct porn is her fascination, nay, her obsession with watching/imagining *other people* having sex.
+
+She imagines Brother Benjamin and Sister Sarah getting it on. She paints this whole scene and we think it's real until we find out that this was a day dream she was having while the hymns were going on.
+
+
+
